@@ -8,4 +8,4 @@ CCD’s operational goals include:
 *   Helping those citizens and leaders implement reforms that will produce more collaborative local government;
 *   Monitoring the results and disseminating word about them.
 
-For more information about CCD, [click here](http://www.genuinerepresentation.org/).
+[For more information about CCD, click here](http://www.genuinerepresentation.org/).
