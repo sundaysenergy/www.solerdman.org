@@ -2,6 +2,8 @@ Sol Erdman became an expert on resolving political conflict by first becoming ad
 
 At midlife, however, Erdman was drawn to the idea of resolving difficult conflicts. Attending the Program on Negotiation at Harvard Law School, he was soon doing cutting-edge research with some of its leading thinkers. By studying their well-established methods, Erdman developed new tools for coaxing elected officials to hammer out sensible agreements on contentious issues.
 
-To disseminate this new approach, Erdman founded the Center for Collaborative Democracy. CCD is currently focused on providing city and state governments with the tools to develop creative, cost-effective solutions to long-festering problems. In January of 2011, the National Civic Review will publish Erdman’s article on that subject.
+To disseminate this new approach, Erdman founded the Center for Collaborative Democracy. 
+
+CCD is currently focused on a project called the Forum for Long-Term Propserity, which will bring together the men and women whom the American people would most trust to solve our country's economic problems. The Forum's purpose is to develop a combination of economic reforms that will restore our country's fiscal health and promote wide prosperity. The Forum will then present its plan to the American people. 
 
 Erdman’s articles have also appeared in State Government News, Roll Call, The Boston Globe, The Chicago Tribune, The Huffington Post, and The Los Angeles Times.
