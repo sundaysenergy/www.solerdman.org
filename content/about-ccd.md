@@ -1,6 +1,6 @@
 The Center for Collaborative Democracy (CCD) is a non-profit, nonpartisan tax exempt 501 (c) 3 organization that grew out of the MIT-Harvard Public Disputes Program.
 
-CCD’s mission is to develop innovative methods that will encourage legislatures — from town councils to the U.S. Congress — to resolve their differences as constructively as possible, and thereby reach fair, sensible agreements on critical issues.
+CCD’s mission is to develop innovative methods that will encourage policymakers at all levels of government to resolve their differences as constructively as possible, and thereby reach fair, sensible agreements on critical issues.
 
 CCD’s operational goals include:
 
